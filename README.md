@@ -1,0 +1,1 @@
+# Git-birinchi-loyiha
